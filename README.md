@@ -1,0 +1,2 @@
+# mind
+think in mind
